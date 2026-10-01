@@ -9,3 +9,6 @@ Welcome to my page! feel free to check my strawpage if you want to but other the
 *that should shortly be it mainly but heres a few things about me*
 
 # stuff about taii:  I love playing horror games, or games where they have story telling (rdr, rdr2, cod) are short examples of stuff i like, but i am heavily open to new games! i do play vrchat, roblox, and a few other games that i have, currently i am very open to making new friends so feel free to talk to me or interact, i usually feel nervous to go up to people with genuine talented skins so i might whisper to you or wont go up to you at all
+
+<img width="736" height="537" alt="✨" src="https://github.com/user-attachments/assets/a7ef72e2-12b6-4571-85d9-4fee9b0bcf45" />
+
