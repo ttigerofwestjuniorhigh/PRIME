@@ -1,4 +1,5 @@
 # HELLO
+<img width="619" height="619" alt="download - 2026-10-03T123229 366_11zon" src="https://github.com/user-attachments/assets/07a8b9b2-c0e3-4fbb-b032-85f68a5d938a" />
 
 Welcome to my page! feel free to check my strawpage if you want to but other then that heres a few things off my github alone if you're too lazy to open the strawpage link
 
