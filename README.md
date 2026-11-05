@@ -1,5 +1,5 @@
 # HELLO
-<img width="619" height="619" alt="download - 2026-10-03T123229 366_11zon" src="https://github.com/user-attachments/assets/07a8b9b2-c0e3-4fbb-b032-85f68a5d938a" />
+<img width="617" height="917" alt="Rick prime (5)-Photoroom" src="https://github.com/user-attachments/assets/71e85cee-2831-4482-a122-a3d9dfba249e" />
 
 Welcome to my page! feel free to check my strawpage if you want to but other then that heres a few things off my github alone if you're too lazy to open the strawpage link
 
@@ -11,5 +11,9 @@ Welcome to my page! feel free to check my strawpage if you want to but other the
 
 # stuff about taii:  I love playing horror games, or games where they have story telling (rdr, rdr2, cod) are short examples of stuff i like, but i am heavily open to new games! i do play vrchat, roblox, and a few other games that i have, currently i am very open to making new friends so feel free to talk to me or interact, i usually feel nervous to go up to people with genuine talented skins so i might whisper to you or wont go up to you at all, sometimes i am quite weird when im comfortable with you,, plationical flirting might be inclued if ALLOWED if not then i respect it  & wont do it to you!
 
-<img width="736" height="537" alt="✨" src="https://github.com/user-attachments/assets/a7ef72e2-12b6-4571-85d9-4fee9b0bcf45" />
-
+# AGAIN in huge text,, DNI DNI DNI RICKORTY/ PROSHIPPERS EW EW EW EW.
+# Prickcest / rickcest for life
+# jerrycest holy molay.
+# mortycest
+<img width="735" height="473" alt="prime rick art-Photoroom" src="https://github.com/user-attachments/assets/3eb01e77-8c77-4728-a8a8-38f53c763422" />
+# the end balalala.
