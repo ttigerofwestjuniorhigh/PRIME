@@ -1,6 +1,5 @@
 # HELLO
-<img width="617" height="917" alt="Rick prime (5)-Photoroom" src="https://github.com/user-attachments/assets/71e85cee-2831-4482-a122-a3d9dfba249e" />
-
+<img width="2048" height="1152" alt="rick prime and rick c-131 matching pfp-Photoroom-2048x1152" src="https://github.com/user-attachments/assets/4447ee86-0979-41ff-bd22-7a027618244a" />
 Welcome to my page! feel free to check my strawpage if you want to but other then that heres a few things off my github alone if you're too lazy to open the strawpage link
 
 **INTERACT: friendly/ respectful people, shipping is okay with me! as long as its not huge age gaps between fictional characters or ocs (anything taboo/ heavy topics) i would like to avoid strongly, multi- fandoms are allowed to int im not strict about that ! my main fandom right now is Rick and morty, Doctor who, And jujutsu kaisen!**
