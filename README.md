@@ -10,7 +10,7 @@ Welcome to my page! feel free to check my strawpage if you want to but other the
 
 # stuff about taii:  I love playing horror games, or games where they have story telling (rdr, rdr2, cod) are short examples of stuff i like, but i am heavily open to new games! i do play vrchat, roblox, and a few other games that i have, currently i am very open to making new friends so feel free to talk to me or interact, i usually feel nervous to go up to people with genuine talented skins so i might whisper to you or wont go up to you at all, sometimes i am quite weird when im comfortable with you,, plationical flirting might be inclued if ALLOWED if not then i respect it  & wont do it to you!
 
-# AGAIN in huge text,, DNI DNI DNI RICKORTY/ PROSHIPPERS EW EW EW EW.
+# AGAIN in huge text,, DNI DNI DNI RICKORTY PLEASE
 # Prickcest / rickcest for life
 # jerrycest holy molay.
 # mortycest
